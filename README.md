@@ -4,5 +4,5 @@
 
 hi, 
 
-- :no_mouth: :panda_face: My blog 👉 https://www.yuque.com/_ngp/blog      
+- :no_mouth: :panda_face: 
 
